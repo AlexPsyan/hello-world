@@ -1,3 +1,3 @@
 # hello-world
 
-The name is ALex or Psyan and I mak gam hopefully
+The name is Alex or Psyan and I mak gam hopefully
